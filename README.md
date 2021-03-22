@@ -1,1 +1,0 @@
-# jaymmann.midterm.github.io
